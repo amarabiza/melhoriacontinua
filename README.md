@@ -1,4 +1,4 @@
-ualidade, melhoria contínua e criatividade são algumas das linhas de pensamento estruturadas há pelo menos meio século – e que continuam inspirando a resolução de problemas.
+Qualidade, melhoria contínua e criatividade são algumas das linhas de pensamento estruturadas há pelo menos meio século – e que continuam inspirando a resolução de problemas.
 
 por Alencar Marabiza
 
